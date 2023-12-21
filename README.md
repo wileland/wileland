@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @wileland
 - 👀 I’m interested in ...coding, networking, hustling, learning, growing, evolving.
 - 🌱 I’m currently learning ...full stack!
-- 💯 I’m looking to collaborate on ...  
+- 💯 I’m looking to collaborate on ... it all. Always and with everyone! 
 - 📫 How to reach me ...
 https://www.youtube.com/watch?v=EA1NPaCBIVg
 
